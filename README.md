@@ -2,7 +2,7 @@
 - 👀 I’m interested in self trade, and berdagang
 - 🌱 I’m currently learning aerospace
 - 💞️ I’m looking to collaborate on linkednin and x.com
-- 📫 How to reach me : https://x.com/StifenJans, my tele is t.me/Stf_J06cyberpunk
+- 📫 How to reach me : https://x.com/StifenJans
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm Technical background that mostly just learning in the anaylsist and bit of financial engineer/quantitative
 
